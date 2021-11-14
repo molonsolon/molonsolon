@@ -1,5 +1,6 @@
 Hello! I’m @molonsolon.
 
+
 I’m interested in web app and front-end development as well as merging my other artistic mediums with programming. 
 
 I’m currently teaching myself front-end web development using HTML, CSS, Javascript and React 
