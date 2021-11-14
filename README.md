@@ -8,7 +8,7 @@ through The Odin Project and other assorted online informational resources.
 
 I’m looking to collaborate on creative web appllications and sites that incorporate new methods of sharing art online.
 
-Email me @m010ns010n@protonmail.com or DM me on Twitter @MolonSolon. 
+Email me @ m010ns010n@protonmail.com or DM me on Twitter @MolonSolon. 
 
 
 Thanks for stopping by <3 
